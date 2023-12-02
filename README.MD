@@ -1,1 +1,1 @@
-This project is dead why are you here
+Just a bot, maybe an ai when i figure out how to do it idk
